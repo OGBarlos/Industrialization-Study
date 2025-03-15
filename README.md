@@ -12,6 +12,6 @@ Being conscious of our decisions helps us make better decisions and keeps the Ea
 You can also find this, and my other work on my LinkedIn and my Substack!
 
 
-[https://github.com/OGBarlos](https://www.linkedin.com/in/kory-begley-63b653260/)
+[LinkedIn](https://www.linkedin.com/in/kory-begley-63b653260/)
 
-[https://substack.com/@korybegley?utm_source=user-menu](https://substack.com/@korybegley?utm_source=user-menu)
+[Substack](https://substack.com/@korybegley?utm_source=user-menu)
